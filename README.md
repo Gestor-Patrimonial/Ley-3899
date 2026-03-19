@@ -1,1 +1,2 @@
 # Ley-3899
+La discusión parlamentaria de la que luego de aprobarse fue la ley 3899, lo patentiza claramente. Luego del discurso del miembro informante, lo apoya el diputado Vivanco; al hacerse eco de una objeción circunstanciada formulada por el diputado Varela, le replica expresando que “fue él quien nos trajo de regreso de su reciente viaje a Europa la revelación de la existencia de estos sindicatos para repartirse el mundo entero, sindicato que en lo que se refiere a estos países constituye el llamado Comité de la América del Sur”.
